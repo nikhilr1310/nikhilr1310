@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **nikhilrupnawar23@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10L-tz2cFQPkV2ByuYtmsCGp4BbhwX-PJ/view?usp=sharing](https://drive.google.com/file/d/10L-tz2cFQPkV2ByuYtmsCGp4BbhwX-PJ/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ONSz5bRdyyw5T8mQI4PrznwZB3nf6fOC/view?usp=sharing](https://drive.google.com/file/d/1ONSz5bRdyyw5T8mQI4PrznwZB3nf6fOC/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am a sportsperson.**
 
